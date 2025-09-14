@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Hasan Mohammad Mizan
+# 👋 Hi, I'm Ali Hasan Mohammed Mizan
 
 🎓 Student (English, National University)  
 👨‍🏫 Teacher (3+ years experience)  
